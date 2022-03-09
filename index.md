@@ -1,5 +1,5 @@
 ---
-title: "Welcome to my blog"
+title: "Welcome to my house"
 ---
 
-I'm glad you are here. I plan to talk about ...
+Ayo I'm the star in every room that I stand in. 
